@@ -4,12 +4,12 @@ Just checking
 
 ### Some (fun)facts about me:
 
-[x] 🏝️ Part-time canario (but can´t surf)
+🏝️ Part-time canario (but can´t surf)
 
-[x] 💒 Take Wedding photos (but not married)
+💒 Take Wedding photos (but not married)
 
-[x] 🏃 Train for half marathon (still in progress)
+🏃 Train for half marathon (still in progress)
 
-[x] 🍺 Brewer (most of it is drinkable)
+🍺 Brewer (most of it is drinkable)
 
-[x] 🦐 Foodie (owner of 1/8 cow)
+🦐 Foodie (owner of 1/8 cow)
